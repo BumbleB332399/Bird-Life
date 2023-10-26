@@ -12,4 +12,6 @@ This is HEAVILY a w.i.p, and nowhere near finsihed.
 
 If you have any bird ideas, submit them in the google forms below! :D 
 
+https://forms.gle/s44PyCoCobxEjfdQ8
+
 

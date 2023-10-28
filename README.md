@@ -14,4 +14,10 @@ If you have any bird ideas, submit them in the google forms below! :D
 
 https://forms.gle/s44PyCoCobxEjfdQ8
 
+-----------------------------------------------------------------------------------------------------------
+
+Discussion:
+
+https://github.com/BumbleB332399/Bird-Life/discussions/1#discussion-5787711
+
 
